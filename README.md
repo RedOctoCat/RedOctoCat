@@ -1,7 +1,7 @@
 ### Hi there 👋
 - 😸 Currently learning 🌱
-- 👀 Looking to process MSe and ion mobility data without Progenesis QIP 🎮
-- ☄️ System: Waters SYNAPT G2-Si HDMS Mass Spectrometer ⏩
+- 👀 How do I use GitHub? I will find out 🎮
+- ☄️ This place is amazing and I love it ⏩
 - 📫 Reach me via forum replies, @s or PMs ⌨️
 - 👧 Pronouns: She/Her. Alias: RedOctoCat!⚡
-- Maybe this can become a guideeeeeeeee <3
+- Trying to live well on the happy planet with you <3
